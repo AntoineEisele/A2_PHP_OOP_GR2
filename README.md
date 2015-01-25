@@ -1,1 +1,1 @@
-Hello Thibaud ! (or everyone else whom come to spy on me ! )
+POKEMON, GOTTA CATCH'EM ALL, POKEMON !
